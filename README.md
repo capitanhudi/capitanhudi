@@ -4,6 +4,7 @@
 -  I’m suppabelış...
 -  I don't need any help nigga.
 -  Codes think but they are selfishly think.
+-  Kodları öğrenmeye çalışmak aptallıktır.Onlar zaten öğretiyorlar.
 
 **All Hudies are looking me now.Because I don't like myself.You are selfish but I am searching anyone around like Hudies.By bye selfish niggas.
 
