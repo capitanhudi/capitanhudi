@@ -1,14 +1,11 @@
--  Hi, ben @capitanhudi(arda ergün)
--  ay em luk in dı desktap ...
--  I’m with learning wery gut ...
--  I’m suppabelış...
--  I don't need any help nigga.
--  Codes think but they are selfishly think.
--  Kodları öğrenmeye çalışmak aptallıktır.Onlar zaten öğretiyorlar.
+-  Merhaba, ben @capitanhudi(arda ergün)
+-  Zamanımı kodlama öğrenmeye ayırmaktan hoşlanırım.
 
-**All Hudies are looking me now.Because I don't like myself.You are selfish but I am searching anyone around like Hudies.By bye selfish niggas.
+-  My purpose is your purpose.My CodeS is your CodeS.
+                                        
 
-<!---
-GitHub filan var iste boş boş işler.
-Kodları öğrenmeye çalışmak aptallıktır.Onlar zaten öğretiyorlar.
---->
+
+-  Yazacağını düşünmek, kodu yazmanın yarısıdır.
+                              
+
+       *Bence havalı bir (oto)biyografi oldu :D
